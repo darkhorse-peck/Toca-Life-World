@@ -233,4 +233,4 @@ Toca Boca World is offered as a complete free version with all features and upda
 Don't miss out on your chance to unleash your creativity! Download Toca Boca World today and start your adventure in this exciting virtual universe!
 
 ---
-**Last updated:** 2026-10-13 21:02:31 UTC
+**Last updated:** 2026-10-14 00:57:06 UTC
